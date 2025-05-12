@@ -1,3 +1,4 @@
+The world is never short of people. No matter what situation you are in now, there are always a large number of people with similar experiences to yours
 ## Hi there 👋
 
 <!--
